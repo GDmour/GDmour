@@ -1,14 +1,16 @@
-Opa gurizada esse e meu perfil
+>Opa gurizada esse é meu perfil
 
-🔭 Atualmente estou trabalhando em Agronegocio🌽
+>Meu nome é Gabriel Moura
 
-🌱 Atualmente estou aprendendo Exatas
+>🔭 Atualmente estou trabalhando em Agronegocio🌽
 
-⚡ Curiosidade: SÃO PAULINO🚩
+>🌱 Atualmente estou aprendendo Exatas
 
-**Atleta**
+>⚡ Curiosidade: SÃO PAULINO🚩
 
-INSTA: @gdmoura_06
+>**ATLETA**
+
+>INSTA: @gdmoura_06
 
 ![](https://media.tenor.com/3354hdPb_hcAAAAd/agronomia-agroboy.gif)
 
