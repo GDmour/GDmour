@@ -10,6 +10,6 @@ Opa gurizada esse e meu perfil
 
 INSTA: @gdmoura_06
 
-![](https://github.com/GDmour/GDmour/assets/140829776/7db643e5-e8b4-4d0a-a041-96137b3fd8ca)
+![](https://media.tenor.com/3354hdPb_hcAAAAd/agronomia-agroboy.gif)
 
   
